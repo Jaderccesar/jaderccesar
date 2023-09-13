@@ -1,5 +1,5 @@
 # 💫 About Me:
-⚡ Tenho 17 anos e sou de SC<br>🔭 Estudo no Instituto Federal Catarinense Campus-Ibirama<br>👯 Aceito Estágio
+⚡ Tenho 18 anos e sou de SC<br>🔭 Estudo no Instituto Federal Catarinense Campus-Ibirama<br>👯 Aceito Estágio
 
 
 ## 🌐 Socials:
