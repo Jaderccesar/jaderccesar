@@ -1,5 +1,5 @@
 # 💫 About Me:
-⚡ Tenho 18 anos e sou de SC<br>🔭 Estudo no Instituto Federal Catarinense Campus-Ibirama<br>👯 Aceito Estágio
+⚡ Me chamo Jader e tenho 18 anos <br>🔭 Formado Técnico em Informática no Instituto Federal Catarinense - Campus Ibirama<br>👯 Cursando Engenharia de Software - Udesc
 
 
 ## 🌐 Socials:
